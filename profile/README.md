@@ -1,4 +1,4 @@
-# HD Streamz APK Download Latest Version 2025 Free for Android/iOS
+# HD Streamz APK Official New Update 2025 Latest Version | Free for Android/iOS
 
 <img src="https://github.com/user-attachments/assets/0505b48e-923d-43e8-bf98-3b3330332619" width="150" />
 
